@@ -20,4 +20,5 @@ colou no prompt na quarta-feira à noite".
 Governa quem transforma princípio abstrato em prática diária —
 com educação, processo e controle no pipeline, não política em PDF.
 
-📫 [LinkedIn] · [Site] · [Newsletter]
+📫 [LinkedIn](www.linkedin.com/in/
+) · [Site](paivaintelligence.org)
